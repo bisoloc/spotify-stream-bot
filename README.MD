@@ -1,4 +1,4 @@
-![]([https://i.ibb.co/5G1RnKw/1.png](https://repository-images.githubusercontent.com/524525898/0ddb30d0-84e3-444d-b62a-602e5e980331))
+![]([https://i.ibb.co/5G1RnKw/1.png](https://repository-images.githubusercontent.com/524525898/0ddb30d0-84e3-444d-b62a-602e5e980331)
 
 *Special shoutout and love go to my bro and friend Plot.*
 
